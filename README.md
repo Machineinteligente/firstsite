@@ -6,3 +6,4 @@ Acredito que tenha ficado bom, estou caminhando para procurar uma vaga como prog
 
 Aonde aprendi todo o conteúdo sobre o site!
 Link : https://www.youtube.com/@Sujeitoprogramador
+Captura de tela 2023-08-24 104315.png
